@@ -1,0 +1,1 @@
+# QimiaQartulad.ge
